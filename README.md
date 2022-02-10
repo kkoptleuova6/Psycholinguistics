@@ -1,4 +1,4 @@
-# Psycholinguistics
+# Sociolinguistic and extralinguistic aspects of the functioning of the Kazakh-Russian-English trilingualism in the oil industry of Kazakhstan
 Sociolinguistic and extralinguistic aspects of the functioning of the Kazakh-Russian-English trilingualism in the oil industry of Kazakhstan
 The purpose of the research: This paper describes the linguistic situation in the oil industry of Kazakhstan. The linguistic situation in the oil industry of Kazakhstan is characterized by functioning of the trilingualism with three languages being used simultaneously - Kazakh, Russian and English. 
 Methods and procedure of research: A survey was conducted among industry staff for the level identification of Kazakh-Russian-English trilingualism. Based on questionnaire method, we interviewed 600 oil industry specialists comparing the level of proficiency in the second and third languages, identifying the level of activity and particular spheres of communication for L1, L2, L3 for informants with different socio-demographic characteristics as well as individual motivations when choosing, studying and using the second and third languages 
